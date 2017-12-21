@@ -34,7 +34,7 @@ Disrespectful
 
 Members of the fraternity are disrespectful. We're disrespectful of others, their
 positions, their skills, their commitments, and their efforts. We're disrespectful
-of the volunteer efforts that permeate the Python fraternity. We're disrespectful
+of the volunteer efforts that permeate the Pirate fraternity. We're disrespectful
 of the processes set forth in the fraternity, and we work despite them. When we
 disagree, we are discourteous in raising our issues. And we fight. To the death.
 
